@@ -1,2 +1,0 @@
-# zodiaco-chines
-zodiaco-chines
